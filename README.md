@@ -4,7 +4,7 @@ Used By JS
                                                            😎😉  
                                                            
                                                           
-![1](https://github.com/fatemeMohamadian/Personal-Website/assets/155579918/a2a1fd26-94b2-43da-8ab2-92894a700bd5)
+![1](https://github.com/fatemeMohamadian/Trick-Modal/assets/155579918/3cbbb6e7-2c7b-4c93-9c93-e0b990d68191)
                                                              👩‍💻
                                     
                                                           
